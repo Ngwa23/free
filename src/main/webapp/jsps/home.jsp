@@ -15,7 +15,7 @@
 	We offer Training for DevOps with Linux, Kubernetes and Cloud, equipping IT Engineers for best performance.
         Landmark Technologies, the Pride of Africa.
 	Class36 DevOps MasterClass will start on April 13, 2024.
-        Please invite all your contacts and friends for this life changing course.
+        Please invite all your contacts and friends for this life changing course.THANK YOU JESUS
 </h1>
 <hr>
 <br>
